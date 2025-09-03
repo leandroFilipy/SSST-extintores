@@ -55,9 +55,7 @@ Os extintores são fundamentais para salvar vidas e proteger patrimônios, minim
 
 ---
 
-## 📚 Referências
 
-(Coloque aqui as referências que você utilizou)
 
 ---
 
